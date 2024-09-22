@@ -1,6 +1,6 @@
 im kap 
-im like playing roblock
+i like playing roblock
 
 e
 
-kap@4972
+discord: kaplol
