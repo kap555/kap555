@@ -3,4 +3,6 @@ i like playing roblock
 
 e
 
-discord: kaplol
+--discord: kaplol--
+
+telegram: @kap05
